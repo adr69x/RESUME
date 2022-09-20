@@ -1,2 +1,0 @@
-# RESUME
-MY WD RESUME html
